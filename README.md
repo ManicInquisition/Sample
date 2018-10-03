@@ -1,2 +1,5 @@
 # Sample
 SampleSampleSample
+Some spammy text that really, in the grand scheme, doesn't matter. But do any of us really matter? Does this matter, as the inevitable heat death of the universe encloses on us?
+Yes. Our existence is merely a happenstance when given the infinite span of time, and constant probability of events. The purpose of life is simply to exist for the joy of existing, for ourselves. Life didn't have to happen, and we're entirely unaware of how long "it" has been. We don't know how long "it" will be. And we don't know where we fit into "it's" life span. Yet it just is.
+If the cyclical universe theory is to be believed, we could be an innumerable amount of cycles of big bangs and big crunches down the line. However, our perspective wouldn't be aware of this. To us, this is the first big bang to ever happen, whether that may or may not be true. This is the cycle in which we exist, and there's no rhyme, reason, or purpose to it. And so, the meaning of life is simply to enjoy, to make the most of, and improve the conditions of the way we exist. Life is meaningless without joy.
